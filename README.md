@@ -1,0 +1,1 @@
+SİZİ SEVİYORUZ
